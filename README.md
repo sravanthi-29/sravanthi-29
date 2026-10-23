@@ -7,7 +7,7 @@ My name is **Sravanthi**. I am currently pursuing my 2nd year of B.Tech in the *
 
 ## Educational Background
 
-I completed my Intermediate education at **SHASTRA Junior College, Vijayawada**, and I completed my 10th class in **East Gangavaram**.
+I completed my Intermediate education at **SHASTRA Junior College, Vijayawada**, and I completed my 10th class in **SSVNH High School, East Gangavaram**.
 
 ## My Hobbies and Interests
 
